@@ -1,4 +1,4 @@
-#  
+#  sol's rng elite Script is the best sol's rng Script, featuring auto-sell and instant win. Safe and powerful for all your needs.
 
 
 
